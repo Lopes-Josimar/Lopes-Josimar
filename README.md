@@ -43,7 +43,8 @@ Meu objetivo é continuar evoluindo como profissional de tecnologia, aprofundand
 
 ## 📫 Contato
 
-Em breve, adicionarei aqui minhas redes profissionais e outras formas de contato.
+lopesjosimar@gmail.com
+linkedin.com/in/josimar-lopes-a4a510345/
 
 ---
 
